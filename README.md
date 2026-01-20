@@ -1,8 +1,6 @@
 
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=🍒&color=red)
- 　<p align="center"><img width="2048" height="2048" alt="47" src="https://github.com/user-attachments/assets/ae67cbd7-a263-4f32-b252-eab7842106ce" />
-
-<p align="center">maaaan idk what to put anymore
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=🌈&color=ff69b4)
+ 　<p align="center"><img width="4048" height="4048" alt="68" src="https://github.com/user-attachments/assets/0d73feb6-46f1-4267-9bac-5812ffe8c8be" />
 
   
